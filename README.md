@@ -1,1 +1,1 @@
-# mami.ad
+# Vote for Us.ad
